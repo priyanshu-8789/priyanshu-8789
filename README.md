@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **priyanshumishra8789@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lceOky9cap2GMx7W5OQ2wqVheFUvl4S9/view?usp=sharing](https://drive.google.com/file/d/1lceOky9cap2GMx7W5OQ2wqVheFUvl4S9/view?usp=sharing)
+- 📄 Know about my experiences [(https://drive.google.com/file/d/1lceOky9cap2GMx7W5OQ2wqVheFUvl4S9/view?usp=sharing)](https://drive.google.com/file/d/1W-7AbcnKgfnh1jKrfw6tLhoqtjT0bWNt/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny and interesting😅😎**
 
